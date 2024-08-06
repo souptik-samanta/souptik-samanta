@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @souptik-samanta
-- 👀 I’m interested in GIRLS
+- 👀 I’m interested in GIRLS and programming and electronics
 - 🌱 I’m currently learning Arduino
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me idk,you may come to my home @itz_not_souptik (insta)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ben-do-ver
