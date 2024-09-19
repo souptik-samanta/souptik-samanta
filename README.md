@@ -2,7 +2,7 @@
 - 👀 I’m interested in **_GIRLS_** and **_programming_** and **_electronics_**
 - 🌱 I’m currently learning Everything I can get.
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me idk,you may come to my home or [**@itz_not_souptik**](https://www.instagram.com/itz_not_souptik/) **Instagram** , **Email**:[**Souptik**](souptiksamanta20141188@gmail.com)
+- 📫 How to reach me idk,you may come to my home or [**@souptik.me**](https://www.instagram.com/souptik.me/) **Instagram** , **Email**:[**Souptik**](souptiksamanta20141188@gmail.com)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ben-do-ver
 
